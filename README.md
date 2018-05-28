@@ -1,0 +1,2 @@
+# seyanabot
+seyna, sorena, wakaru
